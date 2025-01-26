@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @AnmolDixitB13
 - 😄 Pronouns: He/him
+- Qualification: ME / MTech
 - 📫 How to reach me: dixitanmol13@gmail.com
 - 📙 Current Asignment: Learning AIML from Aptech Learning
 - 😅 Other likes/interests: Human Biology 🫀 🧠, Environmental Science 🌳, Mahābhārat
