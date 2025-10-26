@@ -2,7 +2,7 @@
 - 😄 Pronouns: He/him
 - 📜 Qualification: Engineer
 - 📫 How to reach me: dixitanmol13@gmail.com
-- 📙 Current Asignment: Learning AIML from Aptech Learning
+- 📙 Current Asignment: Working at Capgemini ( Software Engineer )
 - 😅 Other likes/interests: Human Biology 🫀 🧠, Environmental Science 🌳, Mahābhārat
 
 <!---
